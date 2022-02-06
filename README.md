@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Timojl1 !
+- 👀 I’m interested in IT and Gaming
+- 🌱 I’m currently learning HTML5 & CSS3
+- 📫 You can reach me on discord: Timoo#1254
